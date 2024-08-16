@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **sherifahmedelsayed2@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1NicYr-JGLv8JvgODp-PkRRZwMJxj7OZz/view?usp=sharing](https://drive.google.com/file/d/1NicYr-JGLv8JvgODp-PkRRZwMJxj7OZz/view?usp=sharing)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1zjZXYfGZJ60EOLKcgvE2N4gnHhEQBmpe/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
